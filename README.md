@@ -1,1 +1,0 @@
-# kozulya_challenge
